@@ -1,0 +1,6 @@
+-hey, im B0X0
+-im a person on gamejolt (link to profile is: @fat_ass) (my other display names will be jokes)
+-my fav games are celeste, roblox, lisa definitive edition, etc.
+-im a dev on roblox studio, rpg maker vx ace, etc.
+-my fav food is steak. and chicken ofc.
+-thats all, bye bois!!!!!11
